@@ -35,15 +35,21 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Tormenting Tophet: or A terrible description of Hel able to breake the hardest heart, and cause it q
+
+1. TO THE RIGHT WORSHIPFVL AND my very deare friends Sir LESTRAVNGE MORDAVNT of Maſſingham Hall in the County of Norfolke Knight Baronet, and Lady FRAVNCIS MORDAVNT his moſt louing Bed-fellow, HENRY GREENVVOOD Wiſheth all increaſe of Grace in this Life, and Eternall Life in Life to come.
+
+1. TO THE CHRISTIAN READER.
+
 #####Body#####
+¶ TORMENTING TOPHET, OR A terrible deſcription of Hell, able to breake the hardeſt heart, and cauſe 
+    _ ¶ TORMENTING TOPHET, OR A terrible deſcription of Hell, able to breake the hardeſt heart, and cauſe it quake and tremble.
 
-1. ¶ TORMENTING TOPHET, OR A terrible deſcription of Hell, able to breake the hardeſt heart, and cauſe it quake and tremble.
-
-1. In which terrible Deſcription of Hell, I obſerue ſo many ſeuerals, as the Beaſt had heads in the Reuelation,Reu. 13.1. that muſt be tormented in her.
+    _ In which terrible Deſcription of Hell, I obſerue ſo many ſeuerals, as the Beaſt had heads in the Reuelation,Reu. 13.1. that muſt be tormented in her.
 The ſecond part of this Text,The ſecōd part. are the parties for whom Tophet is prepared, and that The third part of the deſcription of Tophet, is ſet downe in theſe wordes,The third part. He hath maThe 4. part And large Oecolam. in Eſay. Obſeruat.The fourth part of the Deſcription of Tophet, mentiThe fift part of the deſcription of Hell, in theſe wordes,The fift part. The burning thereof is fireThe ſixt part of the Deſcription of Tophet, is ſet downe in theſe wordes,The 6. part And much wood. The ſe•enth and ••ſt part. •he breath •f the lord 〈…〉 c.The ſeuenth and laſt part of the Deſcription
 #####Back#####
-Tormenting Tophet: or A terrible description of Hel able to breake the hardest heart, and cause it q
+
+1. AN EARNEST AND ZEAlous Prayer, to be ſaued from the damnation of TOPHET.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
